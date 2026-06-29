@@ -1,0 +1,2 @@
+Esta es mi página portafolios, acá tengo mi carta de presentación o mejor dicho mi curriculum vitae, tanto en página web como en una "ficha" u "hoja normal, digamos.
+Lo sigo editanto pero este es el resultado por ahora. :)
